@@ -10,5 +10,9 @@ the goal is to become cloud engineer and cloud security consultant.
 
 
 
-stay focus , i have a spirit of a finisher. 
+stay focus , i have a spirit of a finisher.   
+
+
+
+I have a spirit of a finsisher. i will see this through. thank you jesus
 
